@@ -2,8 +2,7 @@
 
 ### About Me
 
- I'm an Electronics and Communication Engineering student deeply passionate about technology and innovation.
- I’ve been fascinated by how things work—what began with dismantling gadgets at home soon evolved into a drive to create smarter, more efficient solutions to everyday problems.
+ I'm an Electronics and Communication Engineering student deeply passionate about technology and innovation. I’ve been fascinated by how things work—what began with dismantling gadgets at home soon evolved into a drive to create smarter, more efficient solutions to everyday problems.I love exploring new ideas, solving real-world problems, and collaborating with others who share a drive for creativity and impact. I am looking forward to make use of the opportunity provided by gtech mulearn and launchpad kerala for attaining better career.
 
 #### Leadership and Influence:
 
